@@ -1,0 +1,1 @@
+# Strategy2025RashriAmor-s
